@@ -1,3 +1,1 @@
-😃 and 😭 inside 🧠
-
-( Schrödinger )
+An infinite number of mathematicians walk into a bar...
