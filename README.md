@@ -1,1 +1,2 @@
-- 👋 Hi, I’m @gotcadumitru
+😃 and 😭 inside 🧠
+( Schrödinger )
